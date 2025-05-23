@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 currently Devloping Daaps on  Starknet. I am Alchemist Lets make web3 better.
+🔭 Currently Devloping Daaps on  Starknet. I am Alchemist Lets make web3 better.
 
 
 ## 🌐 Socials:
