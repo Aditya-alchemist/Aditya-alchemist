@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Currently looking for internships. I am Alchemist Lets make web3 safer.
+🔭 I am Alchemist Lets make web3 prominant.
 
 
 ## 🌐 Socials:
