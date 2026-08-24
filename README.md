@@ -7,7 +7,7 @@
 
 
 # 💫 About Me:
-🔭 I am Alchemist Lets make web3 prominant.
+🔭 I am Alchemist Lets make web3 prominant. Actively learning zero knowledge
 
 
 ## 🌐 Socials:
